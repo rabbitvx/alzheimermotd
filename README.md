@@ -1,9 +1,1 @@
-# motddsfdsfds
-teste
-43
-63
-2
-3
-tki
-lol
-
+![flomasterfate](https://github.com/zapp04/alzheimermotd/blob/main/flomaster.gif?raw=true)
