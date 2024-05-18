@@ -1,1 +1,1 @@
-![flomasterfate](https://github.com/zapp04/alzheimermotd/blob/main/flomaster.gif?raw=true)
+![flom](http://d.zaix.ru/GuKd.gif)
